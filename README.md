@@ -2,8 +2,8 @@
 
 Nous représentons des libres penseurs, des programmeurs des  activistes, 
 des techniciens en communication, des designeurs et des hackers, pas les hackers, 
-qu’y font parler d’eux aux nouvelles (Anonymous) ou qui commettre des crimes pour 
-s’enrichir (fraude). Je parle de gens qui son conscient de ce qu’ils ce passent 
+qu’y font parler d’eux aux nouvelles ou qui commettre des crimes pour 
+s’enrichir. Je parle de gens qui son conscient de ce qu’ils ce passent 
 atour d’eux et qu’ils voudraient bien apporter leur contribution afin de montré la vérité au 
 peuple Québécois.
 
