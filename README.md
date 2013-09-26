@@ -1,11 +1,17 @@
 #Humani Generix
 
-Nous représentons des libres penseurs, des programmeurs des  activistes, 
-des techniciens en communication, des designeurs et des hackers, pas les hackers, 
+Nous représentons des libres penseurs, des programmeurs, des  activistes, 
+des techniciens, des designeurs, de simple travailleurs mais aussi des hackers, pas les hackers,
 qu’y font parler d’eux aux nouvelles ou qui commettre des crimes pour 
 s’enrichir. Je parle de gens qui son conscient de ce qu’ils ce passent 
-atour d’eux et qu’ils voudraient bien apporter leur contribution afin de montré la vérité au 
-peuple Québécois.
+atour d’eux et qu’ils voudraient bien apporter leur contribution afin de 
+montré la vérité au peuple québécois. Notre but est de forcer la transparence 
+des gouvernements  en informant les Québécois sur les réels enjeux; 
+l'avenir de nos enfant.
+
+
+
+
 
 
 
