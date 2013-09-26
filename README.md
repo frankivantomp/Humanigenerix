@@ -9,6 +9,10 @@ montré la vérité au peuple québécois. Notre but est de forcer la transparen
 des gouvernements  en informant les Québécois sur les réels enjeux; 
 l'avenir de nos enfant.
 
+Bien qu'officiellement nous n'encourageron jamais un membres d'Humani Generix dans le crime,
+nos valeurs ce situe beaucoup plus du coté de la moral que du coté de la légalité. Si pour la 
+vérité l'un de nous dois tomber, alors qu'il en sois ainsi.
+
 
 
 
