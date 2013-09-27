@@ -11,9 +11,10 @@ l'avenir de nos enfants, de nos ressources et de notre santé.
 
 Bien qu'officiellement nous n'encouragerons jamais un membre d'Humani Generix dans le crime,
 nos valeurs se situent beaucoup plus du côté de la morale que du côté de la légalité. Si pour la 
-vérité l'un de nous doit tomber, alors qu'il en est ainsi.
+vérité l'un de nous doit tomber, qu'il en soit ainsi.Nous sommes a la recherche de 
+chroniqueur, de développeur, de programmeur, d'analyste, de hacker, de techniciens, peu importe, si 
+vous croyez pouvoir être utile c'est probablement que vous le serez.
 
-No
 
 
 
