@@ -1,17 +1,19 @@
 #Humani Generix
 
 Nous représentons des libres penseurs, des programmeurs, des  activistes, 
-des techniciens, des designeurs, de simple travailleurs mais aussi des hackers, pas les hackers,
+des techniciens, des designeurs, de simples travailleurs, mais aussi des hackers, pas les hackers,
 qu’y font parler d’eux aux nouvelles ou qui commettre des crimes pour 
 s’enrichir. Je parle de gens qui son conscient de ce qu’ils ce passent 
 atour d’eux et qu’ils voudraient bien apporter leur contribution afin de 
 montré la vérité au peuple québécois. Notre but est de forcer la transparence 
 des gouvernements  en informant les Québécois sur les réels enjeux; 
-l'avenir de nos enfant.
+l'avenir de nos enfants, de nos ressources et de notre santé.
 
-Bien qu'officiellement nous n'encourageron jamais un membres d'Humani Generix dans le crime,
-nos valeurs ce situe beaucoup plus du coté de la moral que du coté de la légalité. Si pour la 
-vérité l'un de nous dois tomber, alors qu'il en sois ainsi.
+Bien qu'officiellement nous n'encouragerons jamais un membre d'Humani Generix dans le crime,
+nos valeurs se situent beaucoup plus du côté de la morale que du côté de la légalité. Si pour la 
+vérité l'un de nous doit tomber, alors qu'il en est ainsi.
+
+No
 
 
 
